@@ -1,1 +1,0 @@
-# sandypixel.github.io
